@@ -4,4 +4,4 @@
 - 🌱 I’m currently learning game programming
 - 👯 I’m looking to collaborate on creating video games
 - 📫 How to reach me: guillet_evan@protonmail.com
-- 👀 I like: video games (obviously!), metal music and cinema
+- 👀 I like metal music, cinema, and video games obviously!
