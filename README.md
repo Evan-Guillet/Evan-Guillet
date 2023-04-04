@@ -6,4 +6,4 @@
 - 📫 How to reach me: guillet_evan@protonmail.com
 - 👀 I like metal music, cinema, and video games obviously!
 
-<img alt="Coding" width="250" src="https://i.giphy.com/media/CAIgh8LKFbIciGx5Qe/giphy.webp">
+<img alt="Coding" width="250" src="https://i.gifer.com/origin/98/98eda5b292bc33c779b8499d656f90ad_w200.gif">
